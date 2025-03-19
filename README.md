@@ -10,6 +10,7 @@
 </div> <div align="center"> 
   </div> <div align="center"> minors & freakers dni pls. thats about it for dni, theres a bigger dni in the <a href="https://rentry.co/Venomsparx"> hosts rentry</a>
 </div> <div align="center"> dont flirt with me either unless its as a joke and we r friends, it makes me uncomfortable also this is pt not tindr ♡
+ </div> <div align="center"> remember 2 respect ppl online! there r people behind the screens!!
   </div> <div align="center"> 
 </div> <div align="center"> sign the <a href="https://escortingmen.atabook.org">ata</a> & draw on the <a href="https://venomsparx.straw.page">strawpage</a>
   </div> <div align="center">   ⠀⠀
