@@ -2,6 +2,7 @@
 </div> <div align="center">   ⠀⠀
 </div> <div align="center">Jeremy  </div>  
 </div> <div align="center"> he/him</a> </div> 
+my rentry is <a href="https://rentry.co/RomanticHomicid3">here!</a>
 </div> <div align="center"> we're 21. we r part of a system! others can be found <a href="https://rentry.co/VenomLogang">HERE</a> :D </div>
 </div> <div align="center"> feel free to interact w/ me, normally in front of the bakery, I do wander a lot tho. 
 </div> <div align="center"> if we r sat w/ any1 its probably these <a href="https://rentry.co/VenomFriends">guys</a>
